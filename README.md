@@ -1,0 +1,2 @@
+# premium-grain-set-001-grain-setting-bright-cut-and-m
+Struggling to master the intricate techniques of grain setting, bright cutting, and milgrain? Stop searching through scattered videos and notes—this Notion template gives you a unified, step-by-step system to build precision and confidence.  This Grain Setting Bright Cut and Milgrain Guide is more than a list of steps—it's a structured blueprint th
